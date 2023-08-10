@@ -5,3 +5,5 @@
 - 📫 How to reach me ...
 
 ![](https://media1.giphy.com/media/hWhzyAxIu6rVS5AKbP/200w.gif?cid=790b761134w2gt7i8frd509a6kc1wxqkxuu2298pta2eemx2&ep=v1_gifs_search&rid=200w.gif&ct=g)
+
+![](https://media.tenor.com/ORbPOStDXfwAAAAd/pwatecnologia-tecnologia.gif)
